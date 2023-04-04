@@ -1,1 +1,1 @@
-                                                               Discord.gg/flexzy | SkyDrip#9798
+                   Discord.gg/flexzy | SkyDrip#9798
